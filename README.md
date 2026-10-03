@@ -1,4 +1,4 @@
-# Hi, I'm Mya 👋
+# Welcome, I'm Mya 👋
 
 ### Executive Business Partner & AI Program Lead
 
